@@ -1,1 +1,0 @@
-# ZvezdunLabWork3
